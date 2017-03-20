@@ -11,3 +11,6 @@
 7) Put everything back together.
 8) ???
 9) Profit.
+
+Thx to is0-mick: http://spiffyhacks.com/user-1507.html
+http://spiffyhacks.com/thread-971-post-5976.html
